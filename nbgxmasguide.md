@@ -1,8 +1,9 @@
 # Dianas ultimativer Nürnberg-Guide zur Weihnachtszeit
+⭐️ = besondere Empfehlung
 
 ## Lebkuchen
 
-* ⭐️⭐️⭐️ [Lebkuchen Düll](https://maps.app.goo.gl/cJvf1GSsqZh693ZZ6), gibt auch einen Stand in einer [Eisdiele](https://maps.app.goo.gl/xPyPCsG1J8E2tXmPA) bei der Lorenzkirche
+* ⭐️⭐️⭐️ [Lebkuchen Düll](https://maps.app.goo.gl/cJvf1GSsqZh693ZZ6), gibt auch einen Stand in einer [Eisdiele](https://maps.app.goo.gl/xPyPCsG1J8E2tXmPA) bei der Lorenzkirche, Profi-Tipp: Lebkuchenbruch kaufen (ist billiger und genauso lecker)
 * 🚫 Auf gar keinen Fall: Schmidt, Wicklein, Weiss!!!! 🚫
 
 ## Glühweinstände/Christkindlesmarkt
@@ -37,5 +38,5 @@
 ## Sehenswürdigkeiten
 
 * [Aussichtsterrasse auf der Kaiserburg:](https://maps.app.goo.gl/FB1uud5y45t9zZsYA) kostenlos mit schönem Blick über die Stadt, kann man gut mit einem Glühwein-Spaziergang verbinden
-* [Schöner Brunnen:](https://maps.app.goo.gl/pqNbmAtEMLGqRDKN9) direkt beim Christkindlesmarkt: 3x am schwarzen Ring drehen für lebenslanges Glück, nicht mit dem goldenen Ring verwechseln (das ist der Touri-Ring)
+* [Schöner Brunnen:](https://maps.app.goo.gl/pqNbmAtEMLGqRDKN9) direkt beim Christkindlesmarkt: 3x am schwarzen Ring drehen für lebenslanges Glück (Richtung Tante Noris), nicht mit dem goldenen Ring verwechseln (das ist der Touri-Ring)
 * [Weißgerbergasse](https://maps.app.goo.gl/VeG7QLfHaL1WLZh5A) / [Kettensteg:](https://maps.app.goo.gl/ydQ1Ehb8ZndK2ZJn6) sehr schöne Ecke mit vielen Bars
