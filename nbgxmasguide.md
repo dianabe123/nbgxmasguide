@@ -18,7 +18,7 @@
 
 ## Restaurants
 
-* 🍔 ⭐️ [Guerilla Gröstl:](https://maps.app.goo.gl/TxYXQMugS1PefmYr9) die besten Burger mit viel Veggie-Auswahl, ziemlich klein
+* 🍔 ⭐️ [Guerilla Gröstl:](https://maps.app.goo.gl/TxYXQMugS1PefmYr9) die besten Burger mit viel Veggie-Auswahl
 * 🍣 ⭐️ [994 Ginza](https://maps.app.goo.gl/V9zLHZWNrWGPof2b7): in der Nähe von eurem Hotel
 * 🍺 ⭐️ [Schanzenbräu Schankwirtschaft:](https://maps.app.goo.gl/PrEiaXKC9Ct2MWT98) fränkisches Essen mit dem besten Bier aus Nürnberg (Rotbier), gegenüber vom GOHOHOHO
 * 🍣 [Fujiyama](https://maps.app.goo.gl/Hea1Gx6scoyUx33u9): eher fancy, besondere Inneneinrichtung
@@ -32,7 +32,7 @@
 * [dirotebar](https://maps.app.goo.gl/4JYCJYsjc7Dcgh559)
 * [Unauffindbar](https://maps.app.goo.gl/CA4tdEKyWPBRcYM16)
 * In der Weißgerbergasse / am Weinmarkt gibt es mehrere, z. B. [Bahama Mama](https://maps.app.goo.gl/zHFjBupqG57KZ56t8)
-* [Wein Bumms](https://maps.app.goo.gl/Tyn169sKEjbA48MWA) (Weinbar mit Spritzgetränken und Glühwein)
+* [Wein Bumms / Glüh Bumms](https://maps.app.goo.gl/Tyn169sKEjbA48MWA) (Weinbar mit Spritzgetränken und Glühwein)
 
 ## Sehenswürdigkeiten
 
