@@ -13,6 +13,8 @@
 * ⭐️ [Glühalm:](https://maps.app.goo.gl/1SNwq5UxKjHVc1Vu6) am Rand des Christkindlesmarktes, fürs Feeling aber ohne sich durch enge Gassen quetschen zu müssen
 * [Jakobsplatz](https://maps.app.goo.gl/95mqyMTUXU17A1D47): in der Nähe von eurem Hotel
 * [Lorenz Treff](https://maps.app.goo.gl/haX8YvPnvzvE7VPY6) vor der Lorenzkirche: wenn man davor steht, kann man links in einen ruhigen „Außenbereich" gehen (Toilettenschild folgen). Verzehrempfehlung: Alpenpower (ist eher süß)
+* [Glühschwein](https://maps.app.goo.gl/PpCe5yqmXwuXmjvG8): bei den "coolen Kids" beliebt
+* [Punschhausen im Kulturgarten](https://maps.app.goo.gl/cN1Pb3qDJuGbh7Vp6): manchmal spielt abends ein DJ oder Livemusik
 * [Kinderweihnacht](https://maps.app.goo.gl/TxGq7FR7YNBC28mP8): kann man mal kurz drüber laufen, ist sehr schön und meistens nicht so überlaufen wie der Christkindlesmarkt, aber eher für Kinder (gibt trotzdem Glühwein)
 * [Feuerzangenbowle:](https://maps.app.goo.gl/VgmiPWpp1ZYnqaeD6) von hier kann man direkt zum Markt der Partnerstädte abbiegen oder einen Spaziergang zur Burg machen (geht nicht zur überlaufenen [Touri-Falle](https://maps.app.goo.gl/fHbp4YnDMVohHZbs8) bei der Fleischbrücke)
 * [Markt der Partnerstädte:](https://maps.app.goo.gl/Bm5FagR8cFNMcRCT6) hier gibts alles mögliche aus aller Welt, bei vielen sehr beliebt
@@ -38,5 +40,6 @@
 ## Sehenswürdigkeiten
 
 * [Aussichtsterrasse auf der Kaiserburg:](https://maps.app.goo.gl/FB1uud5y45t9zZsYA) kostenlos mit schönem Blick über die Stadt, kann man gut mit einem Glühwein-Spaziergang verbinden
+* [Handwerkerhof](https://maps.app.goo.gl/te5L2MTjsRXfumDT9): mittelalterlicher Hof mit vielen kleinen traditionellen Handwerksbetrieben
 * [Schöner Brunnen:](https://maps.app.goo.gl/pqNbmAtEMLGqRDKN9) direkt beim Christkindlesmarkt: 3x am schwarzen Ring drehen für lebenslanges Glück (Richtung Tante Noris), nicht mit dem goldenen Ring verwechseln (das ist der Touri-Ring)
 * [Weißgerbergasse](https://maps.app.goo.gl/VeG7QLfHaL1WLZh5A) / [Kettensteg:](https://maps.app.goo.gl/ydQ1Ehb8ZndK2ZJn6) sehr schöne Ecke mit vielen Bars
