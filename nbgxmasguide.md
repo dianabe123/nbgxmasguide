@@ -39,7 +39,7 @@
 
 ## Sehenswürdigkeiten
 
-* [Aussichtsterrasse auf der Kaiserburg:](https://maps.app.goo.gl/FB1uud5y45t9zZsYA) kostenlos mit schönem Blick über die Stadt, kann man gut mit einem Glühwein-Spaziergang verbinden
-* [Handwerkerhof](https://maps.app.goo.gl/te5L2MTjsRXfumDT9): mittelalterlicher Hof mit vielen kleinen traditionellen Handwerksbetrieben
+* ⭐️ [Aussichtsterrasse auf der Kaiserburg:](https://maps.app.goo.gl/FB1uud5y45t9zZsYA) kostenlos mit schönem Blick über die Stadt, kann man gut mit einem Glühwein-Spaziergang verbinden
+* ⭐️ [Handwerkerhof](https://maps.app.goo.gl/te5L2MTjsRXfumDT9): mittelalterlicher Hof mit vielen kleinen traditionellen Handwerksbetrieben
+* ⭐️ [Weißgerbergasse](https://maps.app.goo.gl/VeG7QLfHaL1WLZh5A) / [Kettensteg:](https://maps.app.goo.gl/ydQ1Ehb8ZndK2ZJn6) sehr schöne Ecke mit vielen Bars
 * [Schöner Brunnen:](https://maps.app.goo.gl/pqNbmAtEMLGqRDKN9) direkt beim Christkindlesmarkt: 3x am schwarzen Ring drehen für lebenslanges Glück (Richtung Tante Noris), nicht mit dem goldenen Ring verwechseln (das ist der Touri-Ring)
-* [Weißgerbergasse](https://maps.app.goo.gl/VeG7QLfHaL1WLZh5A) / [Kettensteg:](https://maps.app.goo.gl/ydQ1Ehb8ZndK2ZJn6) sehr schöne Ecke mit vielen Bars
