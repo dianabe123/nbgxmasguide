@@ -32,7 +32,7 @@
 ## Bars/Clubs
 
 * [Irish Pub](https://maps.app.goo.gl/KqQvimeJz6eW4PTz6)
-* [dirotebar](https://maps.app.goo.gl/4JYCJYsjc7Dcgh559)
+* [dierotebar](https://maps.app.goo.gl/4JYCJYsjc7Dcgh559)
 * [Unauffindbar](https://maps.app.goo.gl/CA4tdEKyWPBRcYM16)
 * In der Weißgerbergasse / am Weinmarkt gibt es mehrere, z. B. [Bahama Mama](https://maps.app.goo.gl/zHFjBupqG57KZ56t8)
 * [Wein Bumms / Glüh Bumms](https://maps.app.goo.gl/Tyn169sKEjbA48MWA) (Weinbar mit Spritzgetränken und Glühwein)
